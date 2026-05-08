@@ -1,4 +1,4 @@
-
+Enhance Avast Security for macOS with instant Avast Security for macOS Module | VPN-integration + system-optimization, the #1 module. Includes VPN-integration and
 
 
 
